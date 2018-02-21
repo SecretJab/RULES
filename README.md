@@ -1,0 +1,2 @@
+# RULES
+SkyHigh Discord RUles
